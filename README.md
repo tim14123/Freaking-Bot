@@ -1,2 +1,0 @@
-# Freaking-Bot
-Freaking Bot
